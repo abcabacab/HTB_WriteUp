@@ -2,7 +2,7 @@
 
 下载
 
-![image-20240727142012201](C:\Users\andi\AppData\Roaming\Typora\typora-user-images\image-20240727142012201.png)
+![image-20240727142012201](http://47.109.51.39/images/typora-user-images/image-20240727142012201.png)
 
 
 
